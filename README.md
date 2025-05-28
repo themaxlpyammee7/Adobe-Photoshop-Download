@@ -1,5 +1,3 @@
-```markdown
-
 # Adobe Photoshop | The Ultimate Tool for Creative Masterpieces 🎨✨
 
 Adobe Photoshop is your go-to software for stunning photo editing and graphic design! Transform your images and unleash your creativity with powerful tools and features. 🌟🖌️
